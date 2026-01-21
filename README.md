@@ -1,1 +1,1 @@
-"seminar ÀÚ·á" 
+"seminar ìë£Œ" 
